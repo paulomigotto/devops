@@ -1,4 +1,1 @@
-# devops
-BÃ¡sico de Git e Github no Linux Mint
-
-Teste Paulo
+VimCrypt~01!^Ú¡‚‘‘¦¥ÒÏl…“X@-c_JÃ‚^1äÁÁ%| šÓï~øµn…xùùøŒœ9_§N8OV™m]ÆIûÈI_ªòeé²¡²d[Ám‹Äï~H‹84ğ°¤­ùıTFØ!£}.¬Bj
